@@ -1,2 +1,2 @@
 # codes
-simple things
+just time pass
